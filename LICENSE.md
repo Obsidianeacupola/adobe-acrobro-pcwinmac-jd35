@@ -1,4 +1,4 @@
-# 
+# Último Adobe Acrobat Pro scripts para Mac OS | Élite Adobe Acrobat Pro scripts para PC Windows. Con cálculo de impuestos estatales y fusión de PDF — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
